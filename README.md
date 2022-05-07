@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AYaqoob123
+- 👀 I’m interested in coding and im a begginer 
+- 🌱 I’m currently learning python
+- 💞️ I’m looking for more coding hacks 
+- 📫 How to reach me my discord is pump | your mum#8453
+- also i dont accept calls so i only do texts only so if u have any code to send me attacha file or picture of the code and i will thank you for your help towards my coding career!
